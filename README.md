@@ -1,0 +1,2 @@
+# ezgi
+Para çekim
